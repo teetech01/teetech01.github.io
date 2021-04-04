@@ -1,3 +1,3 @@
-# skyusuf15.github.io
+# teetech01.github.io
 
-Sanusi Yusuf Korede's portfolio
+Adegoke Adewale Toheeb's portfolio
